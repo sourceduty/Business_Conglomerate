@@ -1,4 +1,4 @@
-![Business Conglomerate](https://github.com/user-attachments/assets/2111f099-c15e-4908-b973-641fe25ba2bb)
+![Business Conglomerate](https://github.com/user-attachments/assets/e1a3553f-6235-4395-bf6e-4191c32a26c3)
 
 > Assistive business conglomerate developer.
 
